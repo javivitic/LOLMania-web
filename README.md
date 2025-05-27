@@ -1,1 +1,0 @@
-# LOLMania-web
